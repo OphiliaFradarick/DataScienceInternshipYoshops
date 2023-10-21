@@ -6,3 +6,6 @@
 
 ![image](https://github.com/OphiliaFradarick/DataScienceInternshipYoshops/assets/76613993/0accd168-fa37-4416-8316-c1d91658e6e4)
 
+![image](https://github.com/OphiliaFradarick/DataScienceInternshipYoshops/assets/76613993/c3fa3d3f-b2e9-476f-b92d-7c1d51ff55fb)
+
+
